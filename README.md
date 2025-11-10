@@ -1,16 +1,35 @@
-## [WORK IN PROGRESS] 🐛
+## [WORK IN PROGRESS/UNFINISHED] 🐛
+#### **About me**
+Hi, my name is Kverz, I'm 13 years old, I was born and live in Russia. I speak both Russian and English fluently (at least, I'm trying to master it). I'm also learning Korean for my future life.
 
-<!--
-**KV1RZZ/KV1RZZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+any prns but preferably he/him plss!
 
-Here are some ideas to get you started:
+INFJ 9w1
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+heterosexual
+
+w2i, c+h and DNC my skins plss!!
+
+**!DNI/Don't be friends with me!**
+
+- if you are under 13 or over 20... (this does not apply to people I met when they were 18!)
+- If you are a zoophile, a drug addict, a homophobe, a pedophile, and so on!
+- If you are very arrogant and do not think about the feelings of others
+- If you are rude and angry...
+- if you have strange behavior
+- if you don't have a hobby
+- if you are too interested in my personal life (location, family, problems, etc.)
+- if you lie to other people
+- you don't respect other people
+- if you copy other people's skins
+
+**!additional information!**
+
+[WORK IN PROGRESS]
+
+
+
+
+
+
+
