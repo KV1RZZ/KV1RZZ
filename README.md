@@ -30,9 +30,19 @@ w2i, c+h and DNC my skins plss!!
 - Sometimes I can't understand English slang, so please forgive me for the inconvenience:(
 - I'm often in AFK, but I notice whispers (if it happened that I didn't notice this, please send it again later)
 
+**My character/personality!**
+---
+[WORK IN PROGRESS]
+
+**!Interests and fandoms!**
+---
+[WORK IN PROGRESS] 
+My Strawpage will be destroyed because they made it more difficult to log in in Russia (now I have to connect to a VPN every time... it drives me crazy)
+
 **Pony Town statuses:**
 ---
 🟢 - online ; 🌙 - afk
+
 
 <img width="646" height="900" alt="image" src="https://github.com/user-attachments/assets/7509e9e8-c423-42ee-bfb6-abccd7c7eec0" />
 
