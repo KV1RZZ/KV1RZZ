@@ -33,7 +33,6 @@ w2i, c+h and DNC my skins plss!!
 **!Relationship!**
 ---
 - I am always open and friendly to people! But I can be shy..
-- I have c+h, but please warn me in advance that you will sit next to me, as I mentioned earlier I am a little shy..
 - I have c+h, but please warn me in advance that you will sit next to me, as I mentioned earlier, I'm a little shy.. just write that you will sit next to me!:3
 
 **!Interests and fandoms!**
