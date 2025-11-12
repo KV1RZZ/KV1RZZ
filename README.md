@@ -16,7 +16,6 @@
 - *If you are rude and angry...*
 - *if you have strange behavior*
 - *if you don't have a hobby*
-- *if you are too interested in my personal life (location, family, problems, etc.)*
 - *if you lie to other people*
 - *you don't respect other people*
 - *if you copy other people's skins*
@@ -31,7 +30,7 @@
 **!Relationship!**
 ---
 - *I am always open and friendly to people! But I can be shy..*
-- *I have c+h, but please warn me in advance that you will sit next to me, as I mentioned earlier, I'm a little shy.. just write that you will sit next to me!:3*
+- *I have c+h, but please warn me in advance that you will sit next to me, as I mentioned earlier, I'm a little shy.. Just whisper that you'll sit next to me!:3*
 
 **!hobbies and fandoms!**
 ---
