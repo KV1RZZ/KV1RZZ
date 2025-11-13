@@ -50,6 +50,7 @@
 - *Dandy's World*
 - *Forsaken*
 - *Evade (I think this counts as a fandom, idk)*
+- *Genshin Impact*
 
 *That's all... ok? ok.*
 
