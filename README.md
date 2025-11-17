@@ -59,8 +59,7 @@
 ---
 🟢 - *online* ; 🌙 - *afk, but I definitely notice the whispers after a while!*
 
-
-<img width="560" height="300" alt="image" src="https://github.com/user-attachments/assets/3140e77c-950d-4ae0-8035-a4f41bf74055" />
+![ -5](https://github.com/user-attachments/assets/1cf0c9f0-8749-41cd-8ea5-61793cdba6aa)
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
