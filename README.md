@@ -24,7 +24,6 @@
 ---
 - *I don't give out my social networks for the sake of my safety and my comfort.*
 - *I often use dark humor. If this makes you uncomfortable or shocked, please warn me in advance! I don't mean to offend anyone with this!!*
-- *Sometimes I can't understand English slang, so please forgive me for the inconvenience:(*
 - *I'm often in AFK, but I notice whispers (if it happened that I didn't notice this, please send it again later)*
 
 **!Relationship!**
