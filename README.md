@@ -4,7 +4,7 @@
 
 *any prns but preferably he/him plss!*
 
-*INFJ 9w1*
+*INFP . 9w1*
 
 *heterosexual*
 
