@@ -59,7 +59,7 @@
 ---
 🟢 - *online* ; 🌙 - *afk*
 
-![ ](https://github.com/user-attachments/assets/f0a5ea0e-297d-4226-ac8b-5b8b2c090003)
+![ㅤ(੭ु｡╹▿╹｡)੭ु⁾⁾ me nd&#39; my pretty wife_](https://github.com/user-attachments/assets/51b53ed2-bc3a-4429-bf47-f470f6694298)
 
 ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
