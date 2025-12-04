@@ -50,7 +50,7 @@
 - *Forsaken*
 - *Evade (I think this counts as a fandom, idk)*
 - *Genshin Impact*
-- *cars*
+- *Cars*
 
 *That's all... ok? ok.*
 
