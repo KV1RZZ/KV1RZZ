@@ -7,7 +7,7 @@
 ---
 
 <div align="center">
-Hi! Come and sit down anytime. I'm often AFK, so I can ignore you.
+Hi! Come and sit down anytime. I'm often afk, so write in a whisper!
 
 I'm not against meeting new people
 
