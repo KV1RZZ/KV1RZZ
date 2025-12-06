@@ -9,10 +9,12 @@
 <div align="center">
 Hi! Come and sit down anytime. I'm often AFK, so I can ignore you.
 
-I'm not against meeting new people, and you guys are all awesome! 
+I'm not against meeting new people
 
 Info about me will be on my strawpage
 [work in progress].
+
+🟢 online | 🌙 afk | 
 
 **<a href="https://kv1rz.atabook.org/" target="_blank">atabook</a>**
 
